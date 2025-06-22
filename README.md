@@ -53,7 +53,7 @@ Want to unlock the full power of Chikii? This Chikii MOD APK gives you **Unlimit
 
 ---
 
-![Games Preview](https://youtu.be/YOCtb4ztBeM)
+[Games Preview](https://youtu.be/YOCtb4ztBeM)
 
 ---
 
