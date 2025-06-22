@@ -1,6 +1,6 @@
 # Chikii MOD APK – Unlimited Money, Unlock VIP and Coins for Epic Cloud Gaming
 
-![Chikii Logo](https://vpmods.com/wp-content/uploads/2023/11/Chikii-apk-logo.webp)
+![Chikii Logo](https://vpmods.com/wp-content/uploads/2025/06/Chikii-MOD-APK-for-Android-Safe-Download-Guide-VIP-Coins-Unlocked-150x150.png)
 
 > 📥 Official article:  
 [https://vpmods.com/chikii-mod-apk-unlimited-money-unlock-vip-and-coins-for-epic-cloud-gaming/](https://vpmods.com/chikii-mod-apk-unlimited-money-unlock-vip-and-coins-for-epic-cloud-gaming/)
